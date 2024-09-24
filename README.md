@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Daryl080724
-- 👀 I’m interested in Playing online games
+- 👀 I’m interested in learning new skills
 - 🌱 I’m currently learning Github
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me "Daryl080724@gmail.com"
